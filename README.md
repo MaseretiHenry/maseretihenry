@@ -63,7 +63,7 @@
 - 💼  
 - 📺 [YouTube – NairoBuzz2](https://www.youtube.com/@NairoBuzz2)  
 - 🌍 [Portfolio](https://maseretihenry.com)  
-- ✉️ Email: maseretihenry@gmail.com
+- ✉️ Email: maseretihenry5@gmail.com
 
 ---
 
